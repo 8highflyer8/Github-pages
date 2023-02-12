@@ -5,7 +5,7 @@ Email  maximenko.v.maximenko@gmail.com
 
 Telegram https://t.me/highflyer88
 
-![ ](https://github.com/8highflyer8/Github-pages/blob/main/img/400-711.jpeg?raw=true)
+![ ](https://github.com/8highflyer8/Github-pages/blob/main/img/100-178.jpeg?raw=true)
 
 Меня зовут Андрей.
 
